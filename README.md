@@ -1,4 +1,4 @@
-Maybe hou should tell about yourself and this idea for a app first
+Maybe hou should tell about yourself and this idea for a app first or last or not at all???
 
 # Kill-Button
 
